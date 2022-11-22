@@ -1,3 +1,4 @@
+# (҂◡̀_◡́)ᕤ
 Eae my friend, I’m Guvo Lopes, aka garoto_de_programa_por_falta_de_opção
 
 I'm starting my studies in programming and for now I still not have a specific area of interest
